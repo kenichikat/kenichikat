@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @kenichikat
+- :sushi: Hi, I’m @kenichikat
